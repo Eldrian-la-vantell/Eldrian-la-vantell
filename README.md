@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Eldrian_la_vantell. Eli or Eldri for friends
+- 👀 I’m interested in coding. But i just start this infinity way.
+- 🌱 I’m currently learning C++
+- 📫 If you want send me in social network inst: @vi_sunder
